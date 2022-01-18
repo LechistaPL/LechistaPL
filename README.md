@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LechistaPL
+- 👀 I’m interested in creating discord bots
+- 🌱 I’m currently learning C++
+- 💞️ I’m looking to collaborate on discord
+- 📫 How to reach me: 𝕷𝖊𝖈𝖍𝖎𝖆 <3#5309
